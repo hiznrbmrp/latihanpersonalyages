@@ -1,0 +1,2 @@
+# latihanpersonalyages
+b aaja
